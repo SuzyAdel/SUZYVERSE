@@ -1,7 +1,9 @@
 # **Suzyverse** ✦  
+![s1](https://github.com/user-attachments/assets/b03aa19e-f667-4fcb-898c-50aec01debb3)
 > Breaking, fixing, laughing — repeat. 🤸‍♀️💻  
 
 ---
+
 
 ## **What’s inside?**   
 - Tiny experiments & questionable ideas 💡  
