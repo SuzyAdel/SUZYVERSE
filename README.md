@@ -1,5 +1,5 @@
-# **Suzyverse** ✦  
-![s1](https://github.com/user-attachments/assets/b03aa19e-f667-4fcb-898c-50aec01debb3)
+# **SUZYVERSE** ✦ 
+![s4](https://github.com/user-attachments/assets/bbc6db82-2806-471b-890d-3b1070805c7d)
 > Breaking, fixing, laughing — repeat. 🤸‍♀️💻  
 
 ---
